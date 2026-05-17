@@ -1,4 +1,4 @@
-# 
+# Top Vegas Pro pour PC scripts est le meilleur Vegas Pro pour PC scripts avec file d'attente de rendu et outils de collaboration. Sécurisé, fiable et optimisé pour des performances
 
 
 
